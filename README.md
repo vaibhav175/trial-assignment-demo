@@ -1,1 +1,0 @@
-# trial-assignment-demo
